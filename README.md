@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @xXHamBurgerLOLXx
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me netchatdevteam@gmail.com
+- 👨‍💼 I'm manager of Netchat
